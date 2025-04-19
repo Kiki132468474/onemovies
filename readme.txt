@@ -1,0 +1,1 @@
+youvideo je kodi addon kde si můžete nahrávat svá videa. tento addon je jako yt (youtube) ale není. videa se muselí nahrávat ručně do kódu takže mi napište na facebook a ja je tam přidám. Ale video musí být na platformě archive.org a na můj facebook musíte polsat link na video a já to vložím do kódu. Pak mi musíte poslat odkaz na ikonu videa a informace o videu.
